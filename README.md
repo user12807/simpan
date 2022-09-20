@@ -1,2 +1,0 @@
-# simpan
-saya ingin blajar 
